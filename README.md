@@ -1,10 +1,1 @@
 # My-profile
-
-
-
-
-
-
-
-
-uhgvjhkbjlnk;ml';
